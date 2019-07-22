@@ -27,7 +27,7 @@
         , produtos veterinários e todos os demais produtos de outros​ ​setores.<br>    
         # 2012 - 2018 Analista​ ​Laboratorial​ ​III​ ​na​ ​empresa​ ​Safrar​ ​Análises​ ​Agrícola.<br>
          Liderança de equipe para todo o processo de análises de solo e foliar, desde<br>
-         o preparo até o resultado​ ​final.​ ​Analisando,​ ​montando​ ​e​ ​encaminhando​ ​os​ ​laudos​<br>
+         o preparo até o resultado final.​ ​Analisando,​ ​montando​ ​e​ ​encaminhando​ ​os​ ​laudos​<br>
          ​para​ ​o​ ​cliente e tambem com proposta de negocio, vendendo os serviço da empresa e visitando os clientes.
             </p>
         <h4>Telefone - 34988120602</h4>
